@@ -3,5 +3,5 @@ the websites of embodied stupidity / les sites de la bêtises incarnée
 
 | Name | Address |
 | ---- | ------- |
-| Decolonizing Mars | https://decolonizingmars.com/ |
-| WESTBORO BAPTIST CHURCH | https://godhatesfags.com/ |
+| Decolonizing Mars, An Unconference on Mars | https://decolonizingmars.com/ |
+| Westboro Baptist Church, **R**epent or **P**erish | https://godhatesfags.com/ |
